@@ -1,4 +1,4 @@
 # About
 
-This is where you put the contents of your *About* page. Like all your pages, it's in [Markdown](https://guides.github.com/features/mastering-markdown/) format.
+Welcome to my blog.  I hope you find refuge for your wandering thoughts by knowing that somehow out there, there's someone just as perculiar as you.
 
