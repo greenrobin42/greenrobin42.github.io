@@ -3,7 +3,7 @@
 
 Well after reading a bunch of books 📚 about the future, history, neuroscience, psychology, artificial intelligence 🤖 , behavioral biology 🐰, urban planning and interface designing, I am finally ready to do some crystal-balling ⚽ about industries of the short term future. 
 
-These are based on my own opinions and observations from reading.  If you are curious what books these are then check out my book album https://www.facebook.com/media/set/?set=a.10212890221992729&type=1&l=4fe635f9c2
+These are based on my own opinions and observations from reading.  
 
 So according to statisitcs, the world's GDP per capita is increasing logarithimically 💵 💵 💵 .  As such I am going to make this totally unscientific conclution that:
 
