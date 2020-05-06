@@ -4,7 +4,7 @@ Since the start of quarantine, I've been mostly staying indoors at home other th
 
 I always thought of myself to be more on the introverted side of things hence I assumed quarantine would not be a big deal to me.
 
-Well, I was kinda wrong.  Hmm...for the most, I enjoy being by myself but there's one thing that I sort of miss, which is that feeling of being among crowds.
+Well, I was kinda wrong.  Hmm...for the most part, I enjoy being by myself but there's one thing that I sort of miss, which is that feeling of being among crowds.
 
 Before the pandemic, I would go out of my way to do things that let me just exist among crowds of people, either by being a background in someone’s view or a silent observer.  I love walking among the crowded streets of the city, silently drinking coffee in a fully packed coffee shop, or simply witnessing the sunset with flocks of tourists at the pier.
 
