@@ -1,4 +1,4 @@
-# Alone in a crowd
+# Alone in a crowd 🌆
 
 Since the start of quarantine, I've been mostly staying indoors at home other than the occasional times where I go out to buy groceries.
 
