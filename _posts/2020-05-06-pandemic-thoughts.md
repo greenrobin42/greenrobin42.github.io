@@ -10,7 +10,7 @@ Before the pandemic, I would go out of my way to do things that let me just exis
 
 So I wonder really.  Personally, I don't like interacting with strangers but somehow I love the feeling of being in a crowd.  _So why? Why do I love being alone in a crowd--never interacting, just observing and letting time flow away?_
 
-I love looking at people's facial expressions, their body language and especially how they interact with the people they are with.  Is that her sister? Or is that their significant other?  Can I tell just by her hand gestures or how their eyes stare into each other?  Is that teary eye because of a touching YouTube or a flashback from a _painful_ breakup?  Is that frown because he regretted spending $5 on coffee or is he _stressed_ out about a job interview tomorrow?
+I love looking at people's facial expressions, their body language and especially how they interact with the people they are with.  Is that her sister? Or is that her significant other?  Can I tell just by her hand gestures or how their eyes stare into each other?  Is that teary eye because of a touching YouTube or a flashback from a _painful_ breakup?  Is that frown because he regretted spending $5 on coffee or is he _stressed_ out about a job interview tomorrow?
 
 That's when I realized: I love being in a crowd because it allows me to feel small and insignificant.  _Here I am, blessed, being able-bodied, witnessing the sunset, breathing that semi-fresh air with little worries observing others._  I look at these people around me and wonder the lives they are living behind those half-smiles and wary eyes.  I wonder about the challenges they are facing and in that _instance_, **I know**, that my troubles are never as big as _theirs_.
 
