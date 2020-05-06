@@ -1,4 +1,4 @@
-# Gong Gong & Ah Lui 👴👧
+# Gong Gong and Ah Lui 👴👧
 
 _Below is a fictional story about the stock market.  Please read it in the animated Jackie Chan series Uncle's voice._
 
